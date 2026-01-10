@@ -29,3 +29,9 @@ So that's what ethnic minorities in America do for a living, given how hard the 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_qw6x87qw6x87qw6x" src="https://github.com/user-attachments/assets/edde7b8a-4d8d-4bca-a737-72826ea8d02a" />
 
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+It's just a job. How much can it pay to live in the city? But still...these are the forces at play.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_hv9vdihv9vdihv9v (1)" src="https://github.com/user-attachments/assets/9b5cf976-16c1-4db6-b330-f71aad9e27e1" />
+
+
