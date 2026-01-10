@@ -46,3 +46,8 @@ The cybersecurity industry for you. What a life...from army to soldier of fortun
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_fqu2oqfqu2oqfqu2" src="https://github.com/user-attachments/assets/58e8fd3c-6f7b-4aa5-adfc-c933f47db5d4" />
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+It looks like someone didn't like the Peking Duck they were served. Quacks. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_ta30cwta30cwta30" src="https://github.com/user-attachments/assets/aa6b128e-52fc-4afd-9cdd-251d0e0d5522" />
