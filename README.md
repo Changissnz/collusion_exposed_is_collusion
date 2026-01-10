@@ -40,3 +40,9 @@ Oh, now I get it. Americanos Stock Market. Nvidia ahtimo. Made in Taiwan. Rebran
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_wqnpsjwqnpsjwqnp" src="https://github.com/user-attachments/assets/edacab5d-ffa0-4952-8ec1-8ef2fa4f4331" />
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+The cybersecurity industry for you. What a life...from army to soldier of fortune.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_fqu2oqfqu2oqfqu2" src="https://github.com/user-attachments/assets/58e8fd3c-6f7b-4aa5-adfc-c933f47db5d4" />
+
