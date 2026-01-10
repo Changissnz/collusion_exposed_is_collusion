@@ -51,3 +51,9 @@ The cybersecurity industry for you. What a life...from army to soldier of fortun
 It looks like someone didn't like the Peking Duck they were served. Quacks. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_ta30cwta30cwta30" src="https://github.com/user-attachments/assets/aa6b128e-52fc-4afd-9cdd-251d0e0d5522" />
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+What a world we live in! AI revolutionaries, then AI reactionaries, and somehow, it's like the wrong things are getting smarter...machine? 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_xxvllpxxvllpxxvl" src="https://github.com/user-attachments/assets/0964f972-1cb3-42bc-9a78-90bc8b8c13fd" />
