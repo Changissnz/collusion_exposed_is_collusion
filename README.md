@@ -34,4 +34,9 @@ It's just a job. How much can it pay to live in the city? But still...these are 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_hv9vdihv9vdihv9v (1)" src="https://github.com/user-attachments/assets/9b5cf976-16c1-4db6-b330-f71aad9e27e1" />
 
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Oh, now I get it. Americanos Stock Market. Nvidia ahtimo. Made in Taiwan. Rebranded as American. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_wqnpsjwqnpsjwqnp" src="https://github.com/user-attachments/assets/edacab5d-ffa0-4952-8ec1-8ef2fa4f4331" />
 
