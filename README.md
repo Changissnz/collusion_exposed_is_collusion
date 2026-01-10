@@ -57,3 +57,10 @@ It looks like someone didn't like the Peking Duck they were served. Quacks.
 What a world we live in! AI revolutionaries, then AI reactionaries, and somehow, it's like the wrong things are getting smarter...machine? 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_xxvllpxxvllpxxvl" src="https://github.com/user-attachments/assets/0964f972-1cb3-42bc-9a78-90bc8b8c13fd" />
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+So socialism is a thing in the US. Don't be fooled by the front page tycoon shows. Family values...socialist. Cultural initiatives...socialist. And wealth re-distribtion...  
+also socialist.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_sfw2s4sfw2s4sfw2" src="https://github.com/user-attachments/assets/eb8942db-0208-46e1-a6bc-a07591921eb6" />
