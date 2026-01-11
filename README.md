@@ -137,3 +137,10 @@ Good advice. From a professional advisor. The man is on his knees, he's going th
 opportunity. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_4qcu954qcu954qcu" src="https://github.com/user-attachments/assets/11093c63-45a3-43af-8767-0f83e1a1fc21" />
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+How kind of him to teach sensitivity training and Chinese dominoes when the other man did not have enough to buy Dominoe's Pizza. I don't care who you are, poor, rich, 
+barbarian, big bad American, we all need friends. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_4pi9284pi9284pi9 (1)" src="https://github.com/user-attachments/assets/846209d3-ed1c-419d-8aca-7bf7d015dbf5" />
