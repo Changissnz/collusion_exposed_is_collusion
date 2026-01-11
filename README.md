@@ -84,3 +84,9 @@ If only the free market didn't need so much protection. Fortune is not easy with
 to answer. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_hk3lg7hk3lg7hk3l" src="https://github.com/user-attachments/assets/82b783d0-2527-4b34-9f37-30510befcd75" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+A lot of feelings and plans when it comes to using people. We all get that.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_tfh6frtfh6frtfh6" src="https://github.com/user-attachments/assets/a9eef0d2-3425-4b37-acfd-3d32451f2d73" />
