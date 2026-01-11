@@ -109,3 +109,10 @@ And that's why people don't really joke anymore, so idiocracy runs unchecked. I 
 Christian happily ever after. Or Buddhist. Or Jewish. Or Muslim. If the onion fits...you know how a lot of girls and old men are, so whimsical in their beliefs. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_xpgv9xpgv9xpgv9x" src="https://github.com/user-attachments/assets/0d740e05-b8ac-4903-a820-af78fe10f919" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+There's a lot of crazy people in this world. If it's not the cops that go nuts, it's the friend and their friends. Or maybe family, animals, teachers, social workers, 
+normal people on the outside. It's like dynamite. Don't light it up. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_oxtzz2oxtzz2oxtz" src="https://github.com/user-attachments/assets/11007508-c240-463a-a522-e3475e3a4cbc" />
