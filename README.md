@@ -171,3 +171,13 @@ people differ on their resolution.
 Trust is low in the US now. It was pretty low, then it sunk to a new low. It's not just in the US. A global trend. Global banks. Global media. Maybe there's a pattern?  
 
 <img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/4cb8c00a-24b9-4d07-b332-82f88a176c23" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+You know how when a person thinks they own an object, they develop attachments for it. And then they place the object in a spot, and treat the object a certain way. And 
+then there might an accident, they drop the object and the object breaks. And then they file a lawsuit saying that it's someone else's fault. This is an example. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_i7w8hii7w8hii7w8" src="https://github.com/user-attachments/assets/1b741c0d-9d80-491d-873b-bb83989cda1c" />
+
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_i7w8hii7w8hii7w8" src="https://github.com/user-attachments/assets/67c8c56d-9515-4e56-bbc9-e4910cfbdd54" />
