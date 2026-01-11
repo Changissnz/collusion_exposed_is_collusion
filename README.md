@@ -71,3 +71,9 @@ What a great question. Depends on the complex. All questions are equal, but some
 political ambition.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_q3u2cuq3u2cuq3u2" src="https://github.com/user-attachments/assets/31ca25dc-3305-4e8f-af5b-553444e9947a" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Welcome to todays's globalized world. There are always questions with the sourcing and the allegiance. So a little is good. But a lot is bad. Some rule.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_fm3bxgfm3bxgfm3b" src="https://github.com/user-attachments/assets/e9657e60-2f49-4f1e-97fc-d1ccc6c6e01b" />
