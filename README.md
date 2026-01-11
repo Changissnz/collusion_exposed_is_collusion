@@ -116,3 +116,10 @@ There's a lot of crazy people in this world. If it's not the cops that go nuts, 
 normal people on the outside. It's like dynamite. Don't light it up. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_oxtzz2oxtzz2oxtz" src="https://github.com/user-attachments/assets/11007508-c240-463a-a522-e3475e3a4cbc" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Interesting statement. I suppose it's all a matter of perspective. If you're white, that's evangelical capitalism. If you're black, that's poetic justice. And if you're 
+Asian, obviously very Chinese, Chinese being the center of Asia. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_i46cngi46cngi46c" src="https://github.com/user-attachments/assets/04ac8fbd-471d-427f-ac84-c7aa04c87489" />
