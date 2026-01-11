@@ -165,3 +165,9 @@ That looks deadly. But if the shoe fits... You have to admit, there has to be ma
 people differ on their resolution.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_9mm9ue9mm9ue9mm9" src="https://github.com/user-attachments/assets/65178c6c-4a9b-4a72-96b3-e1e3ca1398f8" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Trust is low in the US now. It was pretty low, then it sunk to a new low. It's not just in the US. A global trend. Global banks. Global media. Maybe there's a pattern?  
+
+<img width="1024" height="1024" alt="image" src="https://github.com/user-attachments/assets/4cb8c00a-24b9-4d07-b332-82f88a176c23" />
