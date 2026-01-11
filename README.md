@@ -96,3 +96,9 @@ A lot of feelings and plans when it comes to using people. We all get that.
 Business is usually to increase wealth. Communist. Fascist. Capitalist. Doesn't matter. Is this just a fool complaining? 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_daavv2daavv2daav" src="https://github.com/user-attachments/assets/eb6774f3-21d0-4f75-b341-8ddb598cbbae" />
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Say again, how great solidarity is when there is so much to do and so much to fight for. Definitely not ingredients for civil discontent.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_f69cnqf69cnqf69c" src="https://github.com/user-attachments/assets/671d151b-ab4d-4d26-b8db-314d8112693f" />
