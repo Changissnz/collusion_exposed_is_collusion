@@ -151,3 +151,10 @@ There, you have it. Can't trust politicians or bankers. Can't live without them 
 legislation. Trade and commerce? If global is best, then global it is.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_z3pl7cz3pl7cz3pl" src="https://github.com/user-attachments/assets/333c5ed5-16a9-46ba-b5e3-aa913bf819bc" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Name a person that can be trusted, and they'll be worth as much as ten BMWs, but worth less than eleven BMWs. Name a person that is an icon, and they're uglier than half their 
+peers out there, dumber than the other half of their peers, but have opinions worth about ten BMWs. And that's why some people are angry about that. Hollywood style.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_xu6s1mxu6s1mxu6s" src="https://github.com/user-attachments/assets/c30a9d00-a6d7-4bea-bf59-f953cec8f7b1" />
