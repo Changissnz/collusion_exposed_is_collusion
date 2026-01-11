@@ -158,3 +158,10 @@ Name a person that can be trusted, and they'll be worth as much as ten BMWs, but
 peers out there, dumber than the other half of their peers, but have opinions worth about ten BMWs. And that's why some people are angry about that. Hollywood style.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_xu6s1mxu6s1mxu6s" src="https://github.com/user-attachments/assets/c30a9d00-a6d7-4bea-bf59-f953cec8f7b1" />
+
+-------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- 
+
+That looks deadly. But if the shoe fits... You have to admit, there has to be major underlying issues for someone to be chasing someone else too closely. But there is where 
+people differ on their resolution.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_9mm9ue9mm9ue9mm9" src="https://github.com/user-attachments/assets/65178c6c-4a9b-4a72-96b3-e1e3ca1398f8" />
