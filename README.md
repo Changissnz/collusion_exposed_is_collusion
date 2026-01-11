@@ -106,6 +106,6 @@ Say again, how great solidarity is when there is so much to do and so much to fi
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
 And that's why people don't really joke anymore, so idiocracy runs unchecked. I hope the old man and his partners had their fun. After the fact...get settled down, married, 
-Christian happily ever after. Or Buddhist. Or Jewish. If the onion fits...
+Christian happily ever after. Or Buddhist. Or Jewish. Or Muslim. If the onion fits...you know how a lot of girls and old men are, so whimsical in their beliefs. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_xpgv9xpgv9xpgv9x" src="https://github.com/user-attachments/assets/0d740e05-b8ac-4903-a820-af78fe10f919" />
