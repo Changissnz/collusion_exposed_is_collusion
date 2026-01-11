@@ -144,3 +144,10 @@ How kind of him to teach sensitivity training and Chinese dominoes when the othe
 barbarian, big bad American, we all need friends. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_4pi9284pi9284pi9 (1)" src="https://github.com/user-attachments/assets/846209d3-ed1c-419d-8aca-7bf7d015dbf5" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------- 
+
+There, you have it. Can't trust politicians or bankers. Can't live without them either. Education? Bought and paid for by bankers. Security? Administration runs on politicians' 
+legislation. Trade and commerce? If global is best, then global it is.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_z3pl7cz3pl7cz3pl" src="https://github.com/user-attachments/assets/333c5ed5-16a9-46ba-b5e3-aa913bf819bc" />
