@@ -90,3 +90,9 @@ to answer.
 A lot of feelings and plans when it comes to using people. We all get that.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_tfh6frtfh6frtfh6" src="https://github.com/user-attachments/assets/a9eef0d2-3425-4b37-acfd-3d32451f2d73" />
+
+--------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Business is usually to increase wealth. Communist. Fascist. Capitalist. Doesn't matter. Is this just a fool complaining? 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_daavv2daavv2daav" src="https://github.com/user-attachments/assets/eb6774f3-21d0-4f75-b341-8ddb598cbbae" />
