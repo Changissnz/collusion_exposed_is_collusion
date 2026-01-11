@@ -64,3 +64,10 @@ So socialism is a thing in the US. Don't be fooled by the front page tycoon show
 also socialist.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_sfw2s4sfw2s4sfw2" src="https://github.com/user-attachments/assets/eb8942db-0208-46e1-a6bc-a07591921eb6" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+What a great question. Depends on the complex. All questions are equal, but some questions are better for intellectual pursuit, others better for 
+political ambition.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_q3u2cuq3u2cuq3u2" src="https://github.com/user-attachments/assets/31ca25dc-3305-4e8f-af5b-553444e9947a" />
