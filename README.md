@@ -175,6 +175,6 @@ Trust is low in the US now. It was pretty low, then it sunk to a new low. It's n
 --------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
 You know how when a person thinks they own an object, they develop attachments for it. And then they place the object in a spot, and treat the object a certain way. And 
-then there might an accident, they drop the object and the object breaks. And then they file a lawsuit saying that it's someone else's fault. This is an example. 
+then there might be an accident, they drop the object and the object breaks. And then they file a lawsuit saying that it's someone else's fault. This is an example. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_i7w8hii7w8hii7w8" src="https://github.com/user-attachments/assets/1b741c0d-9d80-491d-873b-bb83989cda1c" />
