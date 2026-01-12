@@ -182,3 +182,10 @@ You know how when a person thinks they own an object, they develop attachments f
 then there might be an accident, they drop the object and the object breaks. And then they file a lawsuit saying that it's someone else's fault. This is an example. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_i7w8hii7w8hii7w8" src="https://github.com/user-attachments/assets/1b741c0d-9d80-491d-873b-bb83989cda1c" />
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------   
+
+We all get that. There's no shame in denying the underlying cause of a lot of people's net worth. It's been happening since day one of the founding of America. No one 
+really cares, anyway. At the end of the day, money is money, yes? 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_57iz0657iz0657iz" src="https://github.com/user-attachments/assets/aea4a5dc-dd58-42d5-96b9-39995c330809" />
