@@ -189,3 +189,15 @@ We all get that. There's no shame in denying the underlying cause of a lot of pe
 really cares, anyway. At the end of the day, money is money, yes? 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_57iz0657iz0657iz" src="https://github.com/user-attachments/assets/aea4a5dc-dd58-42d5-96b9-39995c330809" />
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Sounds about right for that L word, loyalty, nowadays. Populism is so zeitgeist and sometimes, you really can't take anyone else with you, only your ego.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_2h8ijf2h8ijf2h8i" src="https://github.com/user-attachments/assets/68539894-db0c-4c1c-b95f-4a318406b98e" />
+
+----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+The money comes from somewhere. Company this company that says this much money was made. Explains the mass welfare programs and cultural bullshit.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_aojvt3aojvt3aojv" src="https://github.com/user-attachments/assets/5b1b305b-6b77-4cd0-9c90-f5b891649273" />
