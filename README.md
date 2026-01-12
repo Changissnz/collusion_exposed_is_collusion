@@ -198,6 +198,6 @@ Sounds about right for that L word, loyalty, nowadays. Populism is so zeitgeist 
 
 ----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
 
-The money comes from somewhere. Company this company that says this much money was made. Explains the mass welfare programs and cultural bullshit.  
+The money has to come from somewhere. Company this company that says this much money was made. Explains the mass welfare programs and cultural bullshit.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_aojvt3aojvt3aojv" src="https://github.com/user-attachments/assets/5b1b305b-6b77-4cd0-9c90-f5b891649273" />
