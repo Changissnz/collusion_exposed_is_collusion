@@ -201,3 +201,9 @@ Sounds about right for that L word, loyalty, nowadays. Populism is so zeitgeist 
 The money has to come from somewhere. Company this company that says this much money was made. Explains the mass welfare programs and cultural bullshit.  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_aojvt3aojvt3aojv" src="https://github.com/user-attachments/assets/5b1b305b-6b77-4cd0-9c90-f5b891649273" />
+
+-----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+Wanting for more is forgiveable. If everything were worth exactly what it was, where would all the banks go? True or False?  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_awzxtkawzxtkawzx" src="https://github.com/user-attachments/assets/9201dd90-620e-4afe-ab72-49b7f560ed62" />
