@@ -213,3 +213,10 @@ Wanting for more is forgiveable. If every thing was worth exactly what it was, w
 What is collaboration then?! Collaboration prohibited turns to collusion. Collusion is harsher gains, and then... how interesting. What a great history lesson, professor. 
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_xuhwsoxuhwsoxuhw" src="https://github.com/user-attachments/assets/1d630df8-1c9b-4416-848f-143ea84ed570" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------  
+
+Completely understandable. Fueling populist outrage. Giving opportunity for lowfers to lead. And that is why Corporate America is number one, at least in the American 
+press. And it's not collusion either. It's not personal. It's strictly business.  
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_rodzgsrodzgsrodz" src="https://github.com/user-attachments/assets/f50c0c1d-6d3d-4faa-a56a-73be7d501666" />
