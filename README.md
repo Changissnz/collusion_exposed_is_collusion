@@ -204,7 +204,7 @@ The money has to come from somewhere. Company this company that says this much m
 
 -----------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-Wanting for more is forgiveable. If everything were worth exactly what it was, where would all the banks go? True or False?  
+Wanting for more is forgiveable. If every thing were worth exactly what they were, where would all the banks go? True or False?  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_awzxtkawzxtkawzx" src="https://github.com/user-attachments/assets/9201dd90-620e-4afe-ab72-49b7f560ed62" />
 
