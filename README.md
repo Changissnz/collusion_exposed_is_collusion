@@ -207,3 +207,9 @@ The money has to come from somewhere. Company this company that says this much m
 Wanting for more is forgiveable. If everything were worth exactly what it was, where would all the banks go? True or False?  
 
 <img width="1024" height="1024" alt="Gemini_Generated_Image_awzxtkawzxtkawzx" src="https://github.com/user-attachments/assets/9201dd90-620e-4afe-ab72-49b7f560ed62" />
+
+------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+What is collaboration then?! Collaboration prohibited turns to collusion. Collusion is harsher gains, and then... how interesting. What a great history lesson, professor. 
+
+<img width="1024" height="1024" alt="Gemini_Generated_Image_xuhwsoxuhwsoxuhw" src="https://github.com/user-attachments/assets/1d630df8-1c9b-4416-848f-143ea84ed570" />
